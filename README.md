@@ -6,6 +6,6 @@
 - Playing online games that catch my interest 🎮
 - Watching movies or a series 🍿
 
-1. ### My Favorite Physical Activities
+
 
 ## Test Only :)
