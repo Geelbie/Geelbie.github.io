@@ -38,7 +38,8 @@ During my free-time I also spend it by playing online games. I have tried all so
 ![image](https://user-images.githubusercontent.com/118235555/203207199-c1a82691-0df2-42ca-8890-54a73356b666.png)  ![image](https://user-images.githubusercontent.com/118235555/203207224-49cc4fa2-7e8f-4fc2-8bfa-ec8514346002.png) ![image](https://user-images.githubusercontent.com/118235555/203207362-d37ebd07-a44b-4f77-a4a2-dc8535c25f09.png)
 
 Here are my top 3 games in each platform:
-| PC | Mobile | | Console |
+
+| PC | Mobile | Console |
 | ----------- | ----------- | ----------- |
 | Header | Title |Title |
 | Paragraph | Text |Text |
