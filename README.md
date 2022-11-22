@@ -17,7 +17,14 @@ I was influenced by my brother who loves to play football also. Though I am not 
 ![image](https://user-images.githubusercontent.com/118235555/203199951-16cb8146-e181-443b-af1e-2dc40ae97911.png)
 ---
 
-# 2. I Love Playing Guitar
+# 2 Cycling Relieves Stress
+
+I often do cycling during my free-time and it helps me relax and feel the wind. May it be roaming around our village or the city , the feeling is just phenomenal.
+
+![image](https://user-images.githubusercontent.com/118235555/203202633-3add533c-91c5-41d2-86c8-991dc4dc823b.png)
+---
+
+# 3. I Love Playing Guitar
 
 I started discovering my musical talent through playing the guitar. It helps me get rid of boredom and it also gives me another option of a past-time instead of using gadgets like almost all does these days.
 
