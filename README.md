@@ -10,6 +10,10 @@ I shall discover my talents as I journey on. As an Atenean, it is my sole duty t
 - Playing online games that catch my interest 🎮
 - Watching movies or a series 🍿
 
+1. My favorite sport is soccer/football
+![image](https://user-images.githubusercontent.com/118235555/203199951-16cb8146-e181-443b-af1e-2dc40ae97911.png)
+
+
 
 
 
