@@ -17,7 +17,7 @@ I was influenced by my brother who loves to play football also. Though I am not 
 ![image](https://user-images.githubusercontent.com/118235555/203199951-16cb8146-e181-443b-af1e-2dc40ae97911.png)
 ---
 
-# 2 Cycling Relieves Stress
+# 2. Cycling Relieves Stress
 
 I often do cycling during my free-time and it helps me relax and feel the wind. May it be roaming around our village or the city , the feeling is just phenomenal.
 
@@ -30,6 +30,15 @@ I started discovering my musical talent through playing the guitar. It helps me 
 
 ![image](https://user-images.githubusercontent.com/118235555/203201405-46f54fa4-d572-4481-91fd-b28084504b27.png) ![image](https://user-images.githubusercontent.com/118235555/203201488-5a5fc36e-6335-4aec-b391-5e86b5de6250.png)
 ---
+
+# 4. Online Games
+
+During my free-time I also spend it by playing online games. I have tried all sorts of games in different platforms. It helps me to play with my friends and it also improves my socializing skills. 
+
+![image](https://user-images.githubusercontent.com/118235555/203207199-c1a82691-0df2-42ca-8890-54a73356b666.png)  ![image](https://user-images.githubusercontent.com/118235555/203207224-49cc4fa2-7e8f-4fc2-8bfa-ec8514346002.png) ![image](https://user-images.githubusercontent.com/118235555/203207267-d22ee168-2466-4d40-a7c7-8080227574cd.png)
+
+
+
 
 
 
