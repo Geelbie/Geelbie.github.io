@@ -51,7 +51,8 @@ Here are my top 3 games in each platform:
 
 Last on my free-time list is watching movies or series. Like books , it takes me into another world by immersing into it. It takes me to a world that sometimes I won't experience in my life; but through watching it I experience the feeling somehow.
 
-![image](https://user-images.githubusercontent.com/118235555/203209265-103809d6-bdee-4064-a586-5f32d80f5006.png) ![image](https://user-images.githubusercontent.com/118235555/203209364-7d0b3a49-3a5a-4fda-b04b-de90b6ab09fc.png)
+![image](https://user-images.githubusercontent.com/118235555/203209265-103809d6-bdee-4064-a586-5f32d80f5006.png)![image](https://user-images.githubusercontent.com/118235555/203209423-78da06b6-9147-43ff-ba44-e2d94f5298cb.png)
+
 
 
 
