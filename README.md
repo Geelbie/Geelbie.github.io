@@ -41,11 +41,18 @@ Here are my top 3 games in each platform:
 
 | PC | Mobile | Console |
 | ----------- | ----------- | ----------- |
-| 1. | 1.Title |1.Title |
-| 2.Paragraph |2. Text |2.Text |
-| 3.Header |3. Title |3.Title |
+| 1. Genshin Impact  | 1. Mobile Legends |1.Elden Ring |
+| 2. Dota 2 |2. Clash of Clans |2. Dark souls |
+| 3. Resident Evil Games  |3. CoD:Mobile  |3. Forza Horizon|
 
-# 5. 
+---
+
+# 5. Isn't Watching so Relaxing?
+
+Last on my free-time list is watching movies or series. Like books , it takes me into another world by immersing into it. It takes me to a world that sometimes I won't experience in my life; but through watching it I experience the feeling somehow.
+
+![image](https://user-images.githubusercontent.com/118235555/203209265-103809d6-bdee-4064-a586-5f32d80f5006.png)
+
 
 
 
