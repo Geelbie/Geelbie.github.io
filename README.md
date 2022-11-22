@@ -21,7 +21,8 @@ I was influenced by my brother who loves to play football also. Though I am not 
 
 I started discovering my musical talent through playing the guitar. It helps me get rid of boredom and it also gives me another option of a past-time instead of using gadgets like almost all does these days.
 
-![image](https://user-images.githubusercontent.com/118235555/203201405-46f54fa4-d572-4481-91fd-b28084504b27.png)
+![image](https://user-images.githubusercontent.com/118235555/203201405-46f54fa4-d572-4481-91fd-b28084504b27.png) ![image](https://user-images.githubusercontent.com/118235555/203201488-5a5fc36e-6335-4aec-b391-5e86b5de6250.png)
+
 
 
 
