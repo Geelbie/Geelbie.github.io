@@ -41,8 +41,9 @@ Here are my top 3 games in each platform:
 
 | PC | Mobile | Console |
 | ----------- | ----------- | ----------- |
-| Header | Title |Title |
-| Paragraph | Text |Text |
+| 1. | 1.Title |1.Title |
+| 2.Paragraph |2. Text |2.Text |
+| 3.Header |3. Title |3.Title |
 
 # 5. 
 
