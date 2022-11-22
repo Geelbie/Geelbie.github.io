@@ -21,7 +21,8 @@ I was influenced by my brother who loves to play football also. Though I am not 
 
 I often do cycling during my free-time and it helps me relax and feel the wind. May it be roaming around our village or the city , the feeling is just phenomenal.
 
-![image](https://user-images.githubusercontent.com/118235555/203202633-3add533c-91c5-41d2-86c8-991dc4dc823b.png)
+![image](https://user-images.githubusercontent.com/118235555/203202633-3add533c-91c5-41d2-86c8-991dc4dc823b.png) ![image](https://user-images.githubusercontent.com/118235555/203202916-3a7a7fe8-0026-4596-ba88-b0ccc01348a5.png)
+
 ---
 
 # 3. I Love Playing Guitar
