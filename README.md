@@ -35,7 +35,8 @@ I started discovering my musical talent through playing the guitar. It helps me 
 
 During my free-time I also spend it by playing online games. I have tried all sorts of games in different platforms. It helps me to play with my friends and it also improves my socializing skills. 
 
-![image](https://user-images.githubusercontent.com/118235555/203207199-c1a82691-0df2-42ca-8890-54a73356b666.png)  ![image](https://user-images.githubusercontent.com/118235555/203207224-49cc4fa2-7e8f-4fc2-8bfa-ec8514346002.png) ![image](https://user-images.githubusercontent.com/118235555/203207267-d22ee168-2466-4d40-a7c7-8080227574cd.png)
+![image](https://user-images.githubusercontent.com/118235555/203207199-c1a82691-0df2-42ca-8890-54a73356b666.png)  ![image](https://user-images.githubusercontent.com/118235555/203207224-49cc4fa2-7e8f-4fc2-8bfa-ec8514346002.png) ![image](https://user-images.githubusercontent.com/118235555/203207362-d37ebd07-a44b-4f77-a4a2-dc8535c25f09.png)
+
 
 
 
